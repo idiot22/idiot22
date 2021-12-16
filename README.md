@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-✨✨✨✨learn✨✨✨✨export✨✨✨✨✨✨
+✨✨✨✨learn✨✨✨✨explore✨✨✨✨✨✨
 
 - Read more about [me](https://idiot22.github.io/)
 
